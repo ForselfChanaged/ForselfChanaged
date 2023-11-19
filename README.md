@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ForselfChanaged
+- 👀 I’m interested in Unity C# Egret Writing and English
+- 🌱 I’m currently learning English,so this context introduced by English (:-]
+- Yearly plan: Buliding self Blog  exercise body and learn English
